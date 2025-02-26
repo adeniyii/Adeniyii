@@ -14,4 +14,3 @@ I sporadically dump streams of consciousness into [**tiny blog posts**](https://
 
 <img alt="teheehee" src="https://github.com/Adeniyii/Adeniyii/blob/main/nice.gif?raw=true" width="100%">
 -->
-
